@@ -1,6 +1,8 @@
-# 5 Days Selfcare Plan for DevRel Professionals
+![5 Days Selfcare Plan for DevRel Professionals](https://user-images.githubusercontent.com/10005645/226610830-e1ed6601-dbf0-4bae-8ce7-256f72ec745d.jpg)
 
-Hi there! As a developer relations professional, you likely work in a high-stress environment where you're constantly balancing technical knowledge, communication skills, and relationship management. It's important to prioritize self-care to maintain your health and well-being. 
+# Hi there! 
+
+As a developer relations professional, you likely work in a high-stress environment where you're constantly balancing technical knowledge, communication skills, and relationship management. It's important to prioritize self-care to maintain your health and well-being. 
 
 Here are some self-care practices put together as a 5 days plan. We are in this together!
 
