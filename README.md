@@ -24,7 +24,7 @@ Here are some self-care practices put together as a 5 days plan. We are in this 
 - Start your day with a healthy breakfast and plenty of water to hydrate.
 - Take a walk or do some exercise during your lunch break to boost your mood and energy levels.
 - Plan a healthy dinner, and perhaps try a new healthy recipe.
-- Before bed, unwind with a relaxing activity, such as reading, taking a bath or practicing gentle stretches.
+- Before bed, unwind with a relaxing activity, such as reading, or practicing gentle stretches.
 
 ## Day 4: Thankful Thursday
 
